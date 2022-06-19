@@ -1,5 +1,5 @@
 # YOW_Broken_Spring
-A grave of my brokend spring of YOW Skateboard.
+Tombs for my brokend springs from YOW Skateboard.
 
 
 
